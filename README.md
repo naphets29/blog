@@ -79,3 +79,7 @@ Das Zugnetz und die Benutzung der Züge muss deutlich hoch und höher priorisier
 Ressourcen, die gemeinsam von Vielen genutzt werden können, müssen einen sehr sehr hohen Stellenwert haben. Ein Zug kann von Vielen genutzt werden auf demselben Gleisabschnitt. Ein Auto kann nicht von Vielen auf demselben Straßenabschnitt genutzt werden.
 
 Die Luft und die Akustik sind Ressourcen, die alle nutzen müssen, die in derselben Umgebung sind. Wer das egoistisch ausnutzt, handelt rechtswidrig. Er beachtet nicht, dass alle in seiner Umgebung diese Ressource nutzen müssen, so wie er sie gerade missbraucht.
+
+Die Sonne und der Mond sind eine Sonne und ein Mond. Der Mond wirkt auf die Sonne für die Sonne. Aber der Mond kann ohne die Sonne. Wird der Mond bewegt, wirkt das auf die Sonne und für das Leben auf der Erde. Wie weit kann der Mond bewegt werden, dass die Sonne in ihrer Wirkung dem Leben auf der Erde nicht schadet? Was kann gewonnen werden dadurch, dass der Mond bewegt wird für das Leben auf der Erde, solange es der Sonne nicht schadet für das Leben auf der Erde?
+
+Wie kann man nur so blöd sein und an Verschlusszeit denken und sie Verschlusszeit nennen? Es geht beim digitalen Erfassen eines Bildes mit einer Digitalkamera darum, dass diese Zeit Null ist. Die physikalischen Randbedingungen interessieren dabei nicht, so, als seien sie erst zu erfassen, um die Begründung für Verschlusszeit ganz zu verstehen. Das Geheimnis der digitalen Bilderfassung. Vielleicht Verzögerung? Gruß aus der Küche nach Moskau.
