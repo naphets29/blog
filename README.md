@@ -73,3 +73,7 @@ Depression ist die kontinuierliche Erfahrung von Negierung einer oder mehrerer M
 Funktionen sind genial, sie sind wie ein Vertrag. Ihre Signatur besteht aus Eingabe oder Require und Ausgabe oder Ensure. Sie werden aufgerufen und geben das Ergebnis zurück. Denn das garantiert die Funktion. Mehr Funktionen bedeutet mehr Verträge. Achte: A: Eine Software mit einer main Funktion und alles funktioniert wie erwartet. Das ist beeindruckend und wichtig und spricht für Qualität. B: Eine Software mit vielen Dateien, die jeweils viele Funktionen enthalten, und alles funktioniert wie erwartet. Das ist beeindruckend und wichtig und spricht für Qualität. Aber die Wartbarkeit und Erweiterbarkeit ist ungleich höher als im Fall A.
 
 Nur weil Wasser durch den Fluss fließt, ist das Flussbett egal? Blut leitet den Geist in alle Bereiche des Körpers.
+
+Das Zugnetz und die Benutzung der Züge muss deutlich hoch und höher priorisiert werden. Das Autobahnnetz und das Nutzen der Autobahnen muss runter priorisiert werden. Das Potenzial zum Nutzen der Züge ist noch weit unausgeschöpft. Unterschiedliche Klassen in den Zügen decken Anforderungen für alle Menschen aus der Gesellschaft ab.
+
+Ressourcen, die gemeinsam von Vielen genutzt werden können, müssen einen sehr sehr hohen Stellenwert haben. Ein Zug kann von Vielen genutzt werden auf demselben Gleisabschnitt. Ein Auto kann nicht von Vielen auf demselben Straßenabschnitt genutzt werden.
