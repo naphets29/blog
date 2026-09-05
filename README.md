@@ -77,3 +77,5 @@ Nur weil Wasser durch den Fluss fließt, ist das Flussbett egal? Blut leitet den
 Das Zugnetz und die Benutzung der Züge muss deutlich hoch und höher priorisiert werden. Das Autobahnnetz und das Nutzen der Autobahnen muss runter priorisiert werden. Das Potenzial zum Nutzen der Züge ist noch weit unausgeschöpft. Unterschiedliche Klassen in den Zügen decken Anforderungen für alle Menschen aus der Gesellschaft ab.
 
 Ressourcen, die gemeinsam von Vielen genutzt werden können, müssen einen sehr sehr hohen Stellenwert haben. Ein Zug kann von Vielen genutzt werden auf demselben Gleisabschnitt. Ein Auto kann nicht von Vielen auf demselben Straßenabschnitt genutzt werden.
+
+Die Luft und die Akustik sind Ressourcen, die alle nutzen müssen, die in derselben Umgebung sind. Wer das egoistisch ausnutzt, handelt rechtswidrig. Er beachtet nicht, dass alle in seiner Umgebung diese Ressource nutzen müssen, so wie er sie gerade missbraucht.
