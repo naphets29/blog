@@ -19,18 +19,18 @@ Dieses Projekt folgt dem Prinzip, Komplexität dort zu halten, wo sie beherrschb
 
 ```
 ┌─────────────────────────────────────────────────────┐
-│              Anwendungsebene (Python)                │
+│              Anwendungsebene (Python)               │
 │   Verhalten · Zustandsmaschinen · KI-Inferenz       │
 │   Missionsplanung · Kommunikationslogik             │
 ├─────────────────────────────────────────────────────┤
-│           MicroPython-Laufzeitumgebung               │
+│           MicroPython-Laufzeitumgebung              │
 │     MicroPython-VM · asyncio · ulab / numpy         │
 ├─────────────────────────────────────────────────────┤
-│         Hardware-Abstraktionsschicht (C)             │
+│         Hardware-Abstraktionsschicht (C)            │
 │   Treiber · ISR · RTOS-Hooks · Peripherie-HAL       │
 ├─────────────────────────────────────────────────────┤
-│                    Hardware                          │
-│    MCU · Sensoren · Aktoren · Kommunikation          │
+│                    Hardware                         │
+│    MCU · Sensoren · Aktoren · Kommunikation         │
 └─────────────────────────────────────────────────────┘
 ```
 
