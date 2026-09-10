@@ -86,6 +86,8 @@ Wie kann man nur so blöd sein und an Verschlusszeit denken und sie Verschlussze
 
 Wieso Message Broker und nicht Request Broker?
 
+My mobile device, my mobile working device. Easy for me to plug it in the USB-C docking station and to work with it on screens, with a physical keyboard and with a mouse.
+
 ## Wirtschaft 
 
 Wirtschaft ist nicht Wirtschaft, weil Wirtschaft unter Druck setzt aufgrund seiner Vergangenheit und Erfahrung. Wirtschaft löst Max- und Mini-Probleme oder Optimierungsprobleme und betrachtet den Menschen in seiner Freiheit weniger oder gar nicht. Und daher muss der Begriff Wirtschaft ersetzt werden durch Leben. Denn der Standard Geld hat sich überall in allen Bereichen des Lebens durchgesetzt als der Standard oder das Medium zum Tauschen, um in allen Bereichen des Lebens das eigene Leben durch den Tausch zu bereichern. Das persönliche Leben des Kunden ist kein Min- oder Max oder Optimierungsproblem, sondern ist die freie Entscheidung des individuellen Menschen, wann er wie viele neue Tauschungen durchführt. Die Erfindung des Standards zum Tauschen, das Geld, ist genial und in seiner Bedeutung bisher so noch nicht klar genug herausgestellt, wie wichtig es für das Leben wirklich ist. Denn erst durch das Geld, auf das man sich geeinigt hat, kann der Mensch Tauschen und sein Leben dadurch mit Leben bereichern. Es ist die Voraussetzung für den Handel. Es gibt Menschen, die verkaufen und es gibt Menschen, die kaufen. Weil der Mensch außer dem Körper Geist ist, und damit in seiner Entscheidung frei ist, wie auch Geister frei entscheiden, ist erst diese Betrachtung, die den Menschen dadurch erst wirklich die Würde des Lebens gibt, die Betrachtung, die die Wirtschaft, also das Leben, durch diesen Umgang mit Geld wirklich lebenswert macht.
