@@ -88,7 +88,7 @@ Wieso Message Broker und nicht Request Broker?
 
 My mobile device, my mobile working device. Easy for me to plug it in the USB-C docking station and to work with it on screens, with a physical keyboard and with a mouse.
 
-# Schöpfungsenergie
+## Schöpfungsenergie
 
 Das Geheimnis der Schöpfungsenergie im Bericht derselben. Es ist die Impulsenergie, die in einem Moment mindestens so stark wirkt, dass alles, was wurde, wurde.
 
