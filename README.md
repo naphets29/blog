@@ -106,6 +106,8 @@ Der Zusammenhang zwischen Ebbe und Flut und der notwendigen Unsicherheit für di
 
 Niemand freut sich über die durchschnittliche Abweichung von "ganz Ebbe" oder "ganz Flut", wenn er zufällig am Strand an der Nordsee das Meer sieht. Er fragt sich dann sofort, wie lange dauert es noch, bis  "ganz Ebbe" oder "ganz  Flut" ist. Dabei stellt er dann enttäuscht fest, dass bis zu diesen Extremen noch einige Zeit zu warten ist. Den Vorgang bis dahin kann er nicht beschleunigen oder verzögern, er ist gezwungen, zu warten. Daraufhin muss er sich entscheiden, wartet er oder verlässt er wieder den Strand, ohne dabei das Maximum vorgefunden zu haben. Nicht anders verhält es sich in der Wirtschaft bei den Menschen, die jetzt angewiesen waren darauf, zu tauschen. Rückblickend ist damit begründet, das zum Zeitpunkt des Tauschens kein Irrtum vorlag, denn zum Zeitpunkt des Tauschens musste getauscht werden. Es war nötig.
 
+Gottfried Leibniz wurde verflucht und für Isaac Newton wurde geflucht
+
 ## USA, Russland, China
 
 Die US-Regierung hat den Anschlag am 11.09.2001 auf das World Trade Cenrer bewusst geplant und für das Verschieben der Grenzen der Gerechtigkeit in der unsichtbaren bösen Fluchtwelt damit stark verschoben zu ihren Fluchgunsten. Denn die ungerechten Opfer am 11.09.2001 mit US-Bürgern waren sehr sehr groß. Die Vereinigten Staaten von Amerika lieben es, wenn sie ungerecht behandelt werden, um dann dadurch alle Freiheiten der Gerechtigkeit für ihre eigentlichen Ziele nutzen zu können. Dieses Verhaltensmuster ist ein typisches und findet am Ende dieser Welt maximale Anwendung durch die Fluchwucht der Juden für Amerika.
