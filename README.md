@@ -106,7 +106,7 @@ Der Zusammenhang zwischen Ebbe und Flut und der notwendigen Unsicherheit für di
 
 Niemand freut sich über die durchschnittliche Abweichung von "ganz Ebbe" oder "ganz Flut", wenn er zufällig am Strand an der Nordsee das Meer sieht. Er fragt sich dann sofort, wie lange dauert es noch, bis  "ganz Ebbe" oder "ganz  Flut" ist. Dabei stellt er dann enttäuscht fest, dass bis zu diesen Extremen noch einige Zeit zu warten ist. Den Vorgang bis dahin kann er nicht beschleunigen oder verzögern, er ist gezwungen, zu warten. Daraufhin muss er sich entscheiden, wartet er oder verlässt er wieder den Strand, ohne dabei das Maximum vorgefunden zu haben. Nicht anders verhält es sich in der Wirtschaft bei den Menschen, die jetzt angewiesen waren darauf, zu tauschen. Rückblickend ist damit begründet, das zum Zeitpunkt des Tauschens kein Irrtum vorlag, denn zum Zeitpunkt des Tauschens musste getauscht werden. Es war nötig.
 
-Gottfried Leibniz wurde verflucht und für Isaac Newton wurde geflucht
+Gottfried Leibniz wurde verflucht und für Isaac Newton wurde geflucht. Die USA und Russland haben Gottfried Leibniz verflucht. Euler dagegen sollte die Reihendarstellung der e-Funktion veröffentlichen. Euler starb in Russland.
 
 ## USA, Russland, China
 
