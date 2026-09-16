@@ -119,3 +119,5 @@ Die Nation, die am heftigsten flucht, ist Russland. Sie haben die Vorbereitung f
 Die Geldumverteilung von Amerika und der Welt nach China ist geflucht. China ist mit Abstand das reichste Land der Welt und ist in der Wissenschaft in vielen modernen und innovation Bereichen sehr stark. Das macht China zu der Nation, die auch mit das größte Interesse hat, mich zu töten.
 
 Spanien hat geflucht, entweder habe ich für immer ein Knieproblem und kann damit nicht Fußball spielen oder Spanien wird vernichtet. Aber wenn Spanien vernichtet wird, dann hat Spanien geflucht, dass dann auch die Welt sicher vernichtet wird.
+
+Wenn das Jobcenter Bielefeld mir eine Matratze zur Verfügung stellt für gesünderen Schlaf, wird China die Vereinigten Staaten von Amerika mit einer Atombombe angreifen.
