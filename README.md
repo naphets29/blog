@@ -92,6 +92,8 @@ Besser als Kommunikationsleitungen sind Pulsleitungen
 
 Wer steuert eigentlich die Signale auf dem Kontrollbus? Der Kontroller. Wie macht das der Kontroller? Der Kontroller arbeitet das Programm ab. Wer macht das Programm? Das machen die Menschen. Das aber ist eine leichte Herabwertung der CPU und ihrer Arbeitsweise und eine sehr hohe Aufwertung der Intelligenz des Menschen. Gut, also was müssen wir untersuchen, die Architektur oder den Menschen?
 
+Was ist lokale Information? Was beunruhigt den Menschen bei der Frage, was lokale Information ist? Computer oder Maschinen arbeiten nur mit lokaler Information. Der Mensch vertraut Computern und Maschinen.
+
 ## Schöpfungsenergie
 
 Das Geheimnis der Schöpfungsenergie im Bericht derselben. Es ist die Impulsenergie, die in einem Moment mindestens so stark wirkt, dass alles, was wurde, wurde.
