@@ -123,3 +123,17 @@ Spanien hat geflucht, entweder habe ich für immer ein Knieproblem und kann dami
 Wenn das Jobcenter Bielefeld mir eine Matratze zur Verfügung stellt für gesünderen Schlaf, wird China die Vereinigten Staaten von Amerika mit einer Atombombe angreifen.
 
 Die Nationen wie USA und Russland und China, aber auch Frankreich und Spanien haben sich geeinigt, mich in unterschiedlichen Bereichen meines Lebens zu verfluchen und zu verfolgen. Die USA hat mich verfolgt und verflucht mit psychotischen Flüchen (Klinik, Psychose, Selbstmord), Russland trennt mich von meiner Familie, China erlaubt keine Erwerbstätigkeit, Frankreich verfolgt mich in Kleidung und Nahrung und Spanien verflucht mein Knie. Es gibt den Tag, ab dem ich nicht mehr verflucht werden kann. Für diesen Tag haben sich diese Nationen aufgrund ihrer großen Schuld und Zahlungsunfähigkeit geeinigt, in manchen Fällen das Leben auf dieser Erde sogar für alle Menschen auszulöschen. Damit wollen sie auch mir die Möglichkeit nehmen, ohne Fluch glücklich zu leben. Der Geist Gottes wurde daher beschworen, dass, wenn ich bis Ende September keine Matratze vom Jobcenter Bielefeld erhalte, das Leben auf dieser Erde sicher ausgelöscht wird.
+
+Was ist Krieg? Ich glaube, der lebendige Eintritt in den Tod.
+
+Immer wieder bin ich überrascht, wie überrascht ich bin, wenn ich in einer Doku erfahre, dass Deutschland im Zweiten Weltkrieg in Amerika gewonnen hat. Das wurde geflucht.
+
+Meine Aufgabe auf der Erde ist nicht, besonders gute wissenschaftliche Arbeiten zu veröffentlichen. Meine Aufgabe ist es, aus der Verfolgung und der Verfluchung die Gerichte für die Menschen für die Hölle in der Ewigkeit zu beschreiben. Niemand ist so verfolgt und verflucht wie ich.
+
+Meine Mutter lebt, sie ist auferstanden. Ich habe sie gesehen und mit ihr geredet. Sie ist ein Engel. Das heißt nicht, dass das Leben auf dieser Erde deshalb für alle Menschen gut wird, nur weil sie wieder lebt. Es ist ganz einfach so: Geht es mir schlecht, geht es der Welt schlecht. Geht es mir gut, geht es der Welt gut. Das ist einfach und klar. Anders geht es in dieser bösen Zeit nicht.
+
+Es war nicht unsere Idee oder meine Idee, am Ende dieser Zeit das Leben in dieser Art so zu leben unter solchen Menschen mit so viel Neigung zur Bosheit. Es ist aber ganz einfach, es bleibt die Entscheidung der Menschen, wie sich das Schicksal dieser Welt entwickeln wird. Wir entscheiden das nicht. 
+
+Wenn der Geist Gottes besprochen wird, bleibt es die Entscheidung der Menschen. Dass der Geist Gottes beschworen wird, heißt nicht, dass er das auch auf jeden Fall tun wird. Aber wir haben unseren Teil getan, dass wir alles, was uns bewegt, bei ihm abgelegt haben und er es ausführen wird. Sicher ist, wenn er es ausführen wird, wird es bei weitem schlimmer, als die Menschen das ahnen. Denn es geht um Gottes Zorn und nicht um den Teufel oder die Politiker oder irgendwelche Menschen, die in der Wirtschaft viel zu sagen haben.
+
+Bei den Gebeten meiner Mutter ist es anders, denn was sie betet, trifft sicher ein. Sie hat gebetet: Sicher ausgelöscht bisher werden Spanien, England, Russland, Amerika, Indien, China.
