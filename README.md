@@ -90,7 +90,7 @@ My mobile device, my mobile working device. Easy for me to plug it in the USB-C 
 
 Besser als Kommunikationsleitungen sind Pulsleitungen
 
-Wer steuert eigentlich die Signale auf dem Kontrollbus? Der Kontroller. Wie macht das der Kontroller? Der Kontroller arbeitet das Programm ab. Wer macht das Programm? Das machen die Menschen. Das aber ist eine leichte Herabwertung der CPU und ihrer Arbeitsweise und eine sehr hohe Aufwertung der Intelligenz des Menschen.
+Wer steuert eigentlich die Signale auf dem Kontrollbus? Der Kontroller. Wie macht das der Kontroller? Der Kontroller arbeitet das Programm ab. Wer macht das Programm? Das machen die Menschen. Das aber ist eine leichte Herabwertung der CPU und ihrer Arbeitsweise und eine sehr hohe Aufwertung der Intelligenz des Menschen. Gut, also was müssen wir untersuchen, die Architektur oder den Menschen?
 
 ## Schöpfungsenergie
 
