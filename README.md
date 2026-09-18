@@ -128,6 +128,8 @@ Spanien hat geflucht, entweder habe ich für immer ein Knieproblem und kann dami
 
 China hat geflucht, wenn ich ein Unternehmen führe, dann wird die Welt sicher vernichtet.
 
+Russland wird sicher die ganze Welt zerstören, wenn ich Geld verdiene.
+
 Wenn das Jobcenter Bielefeld mir eine Matratze zur Verfügung stellt für gesünderen Schlaf, wird China die Vereinigten Staaten von Amerika mit einer Atombombe angreifen.
 
 Die Nationen wie USA und Russland und China, aber auch Frankreich und Spanien haben sich geeinigt, mich in unterschiedlichen Bereichen meines Lebens zu verfluchen und zu verfolgen. Die USA hat mich verfolgt und verflucht mit psychotischen Flüchen (Klinik, Psychose, Selbstmord), Russland trennt mich von meiner Familie, China erlaubt keine Erwerbstätigkeit, Frankreich verfolgt mich in Kleidung und Nahrung und Spanien verflucht mein Knie. Es gibt den Tag, ab dem ich nicht mehr verflucht werden kann. Für diesen Tag haben sich diese Nationen aufgrund ihrer großen Schuld und Zahlungsunfähigkeit geeinigt, in manchen Fällen das Leben auf dieser Erde sogar für alle Menschen auszulöschen. Damit wollen sie auch mir die Möglichkeit nehmen, ohne Fluch glücklich zu leben. Der Geist Gottes wurde daher beschworen, dass, wenn ich bis Ende September keine Matratze vom Jobcenter Bielefeld erhalte, das Leben auf dieser Erde sicher ausgelöscht wird.
