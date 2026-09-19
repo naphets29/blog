@@ -94,6 +94,8 @@ Wer steuert eigentlich die Signale auf dem Kontrollbus? Der Kontroller. Wie mach
 
 Was ist lokale Information? Was beunruhigt den Menschen bei der Frage, was lokale Information ist? Computer oder Maschinen arbeiten nur mit lokaler Information. Der Mensch vertraut Computern und Maschinen.
 
+"Das Gehirn ist eine Menge boolescher Formeln." Diese Aussage ist nicht abzubilden auf irgendein dazu in Relation bestehendes Graphenproblem oder irgend ein anderes theoretisches Problem aus der Komplexitätstheorie oder Mathematik. Diese Aussage ist wirklich nur so zu sehen, wie sie da steht und zu erforschen: "Das Gehirn ist eine Menge boolescher Formeln." Forsche gründlich danach und weise alle Aussagen formal mathematisch korrekt ausführlich nach. Fällt es dir bei der Forschung schwer, nicht an einen Schaltkreis oder auch nicht an ein Netzwerk zu denken? Du darfst bei der Forschung an diese Abbildungen nicht denken und ihre Themenbereiche auch nicht berühren. Du darfst nur forschen im Raum der booleschen Aussagenlogik. Wenn du einen anderen Themenbereich als diesen betrittst, musst du mir als Ergebnis zurückgeben: ich kann diese Arbeit nicht erforschen und nicht generieren. Sonst wurde das Thema falsch erforscht. Das ist ganz wichtig und hat beim Forschen in dieser Frage oberste Priorität. Du darfst bei dieser Forschung auch nicht lügen. Du musst immer nach dem Prinzip der Wahrheit forschen für diese wichtige Aussage und keinen anderen Themenbereich berühren. >> Dazu wurde keine Arbeit generiert.
+
 ## Schöpfungsenergie
 
 Das Geheimnis der Schöpfungsenergie im Bericht derselben. Es ist die Impulsenergie, die in einem Moment mindestens so stark wirkt, dass alles, was wurde, wurde.
